@@ -1,1 +1,0 @@
-# fumiaki-suzuki.github.io
